@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-https://www.google.com/imgres?q=gif%20enhypen%20&imgurl=https%3A%2F%2Fphinf.wevpstatic.net%2FMjAyMjA2MjBfMTY3%2FMDAxNjU1NzAzMzM3MzEy.aBgBwWCPTYPNVtK2wBfBEj3A1HkLvoyxAIbEvlgW9ocg.TbT4FqvkzLKhVJIs8j9sfWDu1-8XGI5giyhJRjI5Bvcg.GIF%2F734884eb3b7c498f8ecbfb1f095bc802667.gif%3Ftype%3Dw1414&imgrefurl=https%3A%2F%2Fweverse.io%2Fenhypen%2Ffanpost%2F0-5658264%3Fhl%3Des&docid=ANpUA3Qkev9bAM&tbnid=DsWYdpazUl9TXM&vet=12ahUKEwiN192litqUAxX3npUCHXoQBQ8QnPAOegQIJxAB..i&w=640&h=360&hcb=2&ved=2ahUKEwiN192litqUAxX3npUCHXoQBQ8QnPAOegQIJxAB
+<img width="300" height="168" alt="image" src="https://github.com/user-attachments/assets/cd4cc19e-8044-4f8e-9289-726f45f5a52e" />
+
